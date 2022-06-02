@@ -1,6 +1,8 @@
 Alexandra Mikhailova
 
-Contacts
+Contacts: 
+
+e-mail:  ks.mihailova@yandex.ru
 
 Personal Information
 
